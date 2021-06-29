@@ -1,50 +1,50 @@
-<p>2020/6/29a
+<p>2020/6/30
 <p>• 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎  • 视 频： 
-<a href="http://scb.csso.cam/" target="_blank">网址一</a> 　 
-<a href="http://sbb.csso.cam/" target="_blank">网址二</a> 　 
-<a href="http://sab.csso.cam/b.html" target="_blank">网址三</a>
-<p>◆ 分 享 网 址  d.ckett.cf  （请 收 藏） </p>
+<a href="http://scc.csso.cam/" target="_blank">网址一</a> 　 
+<a href="http://sbc.csso.cam/" target="_blank">网址二</a> 　 
+<a href="http://sac.csso.cam/b.html" target="_blank">网址三</a>
+<p>◆ 分 享 网 址  e.ckett.cf  （请 收 藏） </p>
 
 <p>◎•  小 站：  
-<a href="http://scb.csso.cam/f.html" target="_blank">网址一</a> 　 
-<a href="http://sbb.csso.cam/h.html" target="_blank">网址二</a> 　 
-<a href="http://sab.csso.cam/k/" target="_blank">网址三</a></p><p>
+<a href="http://scc.csso.cam/f.html" target="_blank">网址一</a> 　 
+<a href="http://sbc.csso.cam/h.html" target="_blank">网址二</a> 　 
+<a href="http://sac.csso.cam/k/" target="_blank">网址三</a></p><p>
 
 <p>◎  • 翻 墙 软 件 ：  
-<a href="http://scb.csso.cam/ff/" target="_blank">网址一</a> 　 
-<a href="http://sbb.csso.cam/s/read/a1_nd.html" target="_blank">网址二</a> 　 
-<a href="http://sab.csso.cam/ff/index.html" target="_blank">网址三</a></p>
+<a href="http://scc.csso.cam/ff/" target="_blank">网址一</a> 　 
+<a href="http://sbc.csso.cam/s/read/a1_nd.html" target="_blank">网址二</a> 　 
+<a href="http://sac.csso.cam/ff/index.html" target="_blank">网址三</a></p>
 <p>◎  • 每 日 新 闻：  
-<a href="http://scb.csso.cam/day/" target="_blank">网址一</a> 　 
-<a href="http://sbb.csso.cam/day/" target="_blank">网址二</a> 　 
-<a href="http://sab.csso.cam/day/index.html" target="_blank">网址三</a></p>
+<a href="http://scc.csso.cam/day/" target="_blank">网址一</a> 　 
+<a href="http://sbc.csso.cam/day/" target="_blank">网址二</a> 　 
+<a href="http://sac.csso.cam/day/index.html" target="_blank">网址三</a></p>
 <p>◎   • 短 波 分 享：  
-<a href="http://scb.csso.cam/h/" target="_blank">网址一</a> 　 
-<a href="http://sab.csso.cam/h/" target="_blank">网址二</a> 　 
-<a href="http://sbb.csso.cam/h/index.html" target="_blank">网址三</a></p>
+<a href="http://scc.csso.cam/h/" target="_blank">网址一</a> 　 
+<a href="http://sac.csso.cam/h/" target="_blank">网址二</a> 　 
+<a href="http://sbc.csso.cam/h/index.html" target="_blank">网址三</a></p>
 <p>◎   • 九 评.三 退：  
-<a href="http://scb.csso.cam/t/" target="_blank">网址一</a> 　 
-<a href="http://sab.csso.cam/v2/index.html" target="_blank">网址二</a> 　 
-<a href="http://sbb.csso.cam/tt/index.html" target="_blank">网址三</a> 　</p>
+<a href="http://scc.csso.cam/t/" target="_blank">网址一</a> 　 
+<a href="http://sac.csso.cam/v2/index.html" target="_blank">网址二</a> 　 
+<a href="http://sbc.csso.cam/tt/index.html" target="_blank">网址三</a> 　</p>
 <p>  • （E2_视频/语音）《九 评》视频/语音: 
-<a href="http://scb.csso.cam/7738.html" target="_blank">网址一</a> 　 
-<a href="http://sab.csso.cam/7614.html" target="_blank">网址二</a> 　 
-<a href="http://sbb.csso.cam/7633.html" target="_blank">网址三</a></p>
+<a href="http://scc.csso.cam/7738.html" target="_blank">网址一</a> 　 
+<a href="http://sac.csso.cam/7614.html" target="_blank">网址二</a> 　 
+<a href="http://sbc.csso.cam/7633.html" target="_blank">网址三</a></p>
 <p>◎   • 三 退 管 道...退 党 网：  
-<a href="http://scb.csso.cam/go/td1.html" target="_blank">网址一</a> 　 
-<a href="http://sab.csso.cam/go/td2.html" target="_blank">网址二</a> 　 
-<a href="http://sbb.csso.cam/go/td3.html" target="_blank">网址三</a></p>
+<a href="http://scc.csso.cam/go/td1.html" target="_blank">网址一</a> 　 
+<a href="http://sac.csso.cam/go/td2.html" target="_blank">网址二</a> 　 
+<a href="http://sbc.csso.cam/go/td3.html" target="_blank">网址三</a></p>
 <p>  • （F1） 三 退 管 道（一）： 
-<a href="http://scb.csso.cam/dd/" target="_blank">网址一</a> 　 
-<a href="http://sab.csso.cam/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
-<a href="http://sbb.csso.cam/dd/" target="_blank">网址三</a></p>
+<a href="http://scc.csso.cam/dd/" target="_blank">网址一</a> 　 
+<a href="http://sac.csso.cam/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
+<a href="http://sbc.csso.cam/dd/" target="_blank">网址三</a></p>
 <p>  • （F2）三 退 管 道（二）： 
-<a href="http://sab.csso.cam/d/" target="_blank">网址一</a> 　 
-<a href="http://scb.csso.cam/d/index.html" target="_blank">网址二</a> 　 
-<a href="http://sbb.csso.cam/d/" target="_blank">网址三</a></p>
+<a href="http://sac.csso.cam/d/" target="_blank">网址一</a> 　 
+<a href="http://scc.csso.cam/d/index.html" target="_blank">网址二</a> 　 
+<a href="http://sbc.csso.cam/d/" target="_blank">网址三</a></p>
 <p>◎   • PDF电子书：  
-<a href="http://scb.csso.cam/p/" target="_blank">网址一</a> 　 
-<a href="http://sbb.csso.cam/p/index.html" target="_blank">网址二</a> 　 
-<a href="http://sab.csso.cam/p/" target="_blank">网址三</a></p>
+<a href="http://scc.csso.cam/p/" target="_blank">网址一</a> 　 
+<a href="http://sbc.csso.cam/p/index.html" target="_blank">网址二</a> 　 
+<a href="http://sac.csso.cam/p/" target="_blank">网址三</a></p>
