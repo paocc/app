@@ -5,7 +5,7 @@
 <a href="http://scb.csso.cam/" target="_blank">网址一</a> 　 
 <a href="http://sbb.csso.cam/" target="_blank">网址二</a> 　 
 <a href="http://sab.csso.cam/b.html" target="_blank">网址三</a>
-<p>◆ 分 享 网 址  b.ckett.cf  （请 收 藏） </p>
+<p>◆ 分 享 网 址  d.ckett.cf  （请 收 藏） </p>
 
 <p>◎•  小 站：  
 <a href="http://scb.csso.cam/f.html" target="_blank">网址一</a> 　 
